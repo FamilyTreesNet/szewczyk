@@ -1,10 +1,12 @@
 # Szewczyk
 
-Katarzyna passed away in 1974. Her funeral was during a tremendous snowstorm. Ignacy passed away early September 1973, just weeks before his grandson's wedding Sept. 22, 1973. 
+Grandparents of Gwen, Vivian, Jonathan and Robert  
 
-Katarzyna and Ignacy received their marriage license from a courthouse in Springfield, Massachusetts.  
+Katarzyna and Ignacy received their marriage license from a courthouse in Springfield, Massachusetts.  Its possibile Ignacy and Katarzyna were married in Europe prior to 1909.  
 
-While living in Massachusetts, Katarzyna was a housekeeper at a Catholic Church, where she and another housekeeper hid in a broom closet and witnessed priests coming in late and conducting inappropriate behavior with young women in the kitchen. Ignacy and Katarzyna spent a short time farming in Alabama before settling in Detroit, Michigan. Ignacy worked for the Michigan Central Rail Road, not the Père Marquette Railroad. Followed by Ford, then owned a Gulf Gas Station.  
+While living in Massachusetts, Katarzyna was a housekeeper at a Catholic Church, where she and another housekeeper hid in a broom closet and witnessed two priests coming in late and conducting inappropriate behavior with young women in the kitchen.  
+
+Ignacy and Katarzyna spent a short time farming in Alabama before settling in Detroit, Michigan. Ignacy worked for the Michigan Central Rail Road, not the Père Marquette Railroad. Followed by Ford, then owned a Gulf Gas Station in Centerline, Michigan.  
 
 Records from the Ellis Island website:
 
@@ -24,6 +26,7 @@ Daughter Virginia Macks remembers hearing mention of the area named Galicy. She 
 
 Map: Kanczuga, Poland
 
+<img src="img/kanczuga.gif">  
 
 ## Ignacy Szewczyk
 Ethnicity: Austrian, Polish
@@ -38,10 +41,13 @@ Port of Departure: Bremen, Germany
 Estimate: Born 1882; Died in 1968 about 86
 
 Kanczuga is in modern day Poland, about seven miles west
-from the Ukraine and twelve miles north of Slovakia.
-
-There is a possibility Ignacy and Katarzyna were married in Europe prior to 1909.
+from the Ukraine and twelve miles north of Slovakia.  
 
 Katarzyna always mentioned Lancut which is about 1.5 miles northwest of Kanczuga. She may have been born there.
 
 Ignacy had a book about Lezajsk which is about 2.5 miles north of Kanczuga. He may have come from Lezajsk.
+
+
+Katarzyna passed away in 1974. Her funeral was during a tremendous snowstorm. Ignacy passed away early September 1973, just weeks before his grandson's wedding Sept. 22, 1973. 
+
+
