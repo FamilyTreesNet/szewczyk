@@ -1,5 +1,7 @@
 # Katarzyna and Ignacy Szewczyk
 
+Pronounced: Chef Shick  
+
 Grandparents of Gwen, Vivian, Jonathan and Robert  
 
 Katarzyna and Ignacy received their marriage license from a courthouse in Springfield, Massachusetts.  Its possibile Ignacy and Katarzyna were married in Europe prior to 1909. (Note that Ignacy indicated he was married in the ship records.)  
