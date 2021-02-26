@@ -4,7 +4,7 @@ Katarzyna passed away in 1974. Her funeral was during a tremendous snowstorm. Ig
 
 Katarzyna and Ignacy received their marriage license from a courthouse in Springfield, Massachusetts.  
 
-While living in Massachusetts, Katarzyna was a housekeeper at a Catholic Church (where she and another housekeeper witnesses priests conducting inappropriate behavior with young women). Ignacy and Katarzyna spent a short time farming in Alabama before settling in Detroit, Michigan. Ignacy worked for the Michigan Central Rail Road, not the Père Marquette Railroad. Followed by Ford, then owned a Gulf Gas Station.  
+While living in Massachusetts, Katarzyna was a housekeeper at a Catholic Church, where she and another housekeeper hid in a broom closet and witnessed priests coming in late and conducting inappropriate behavior with young women in the kitchen. Ignacy and Katarzyna spent a short time farming in Alabama before settling in Detroit, Michigan. Ignacy worked for the Michigan Central Rail Road, not the Père Marquette Railroad. Followed by Ford, then owned a Gulf Gas Station.  
 
 Records from the Ellis Island website:
 
