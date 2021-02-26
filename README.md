@@ -10,7 +10,7 @@ Apparently Katarzyna arrived in the US six years before Ignacy. While living in 
 
 Polish immigrants knew about the “Pioneer Valley” of Mass as one of the best farmlands in America.  
 
-Ignacy and Katarzyna spent a short time farming <!--in Alabama-->before settling in Detroit, Michigan. Ignacy worked for the Michigan Central Railroad, not the Père Marquette Railroad. He then worked at Ford before owning a Gulf Gas Station in Centerline, Michigan.  
+Ignacy and Katarzyna spent a short time farming <!--in Alabama-->before settling in Detroit, Michigan. Ignacy worked for the Michigan Central Railroad, not the Père Marquette Railroad. He then worked at Ford before owning a Gulf gas station in Centerline, Michigan.  
 
 Records from the Ellis Island website:
 
