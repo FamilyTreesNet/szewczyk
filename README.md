@@ -2,9 +2,9 @@
 
 Grandparents of Gwen, Vivian, Jonathan and Robert  
 
-Katarzyna and Ignacy received their marriage license from a courthouse in Springfield, Massachusetts.  Its possibile Ignacy and Katarzyna were married in Europe prior to 1909.  
+Katarzyna and Ignacy received their marriage license from a courthouse in Springfield, Massachusetts.  Its possibile Ignacy and Katarzyna were married in Europe prior to 1909. (Note that Ignacy indicated he was married in the ship records.)  
 
-Katarzyna arrived in the US six years before Ignacy. While living in Massachusetts, Katarzyna was a housekeeper at a Catholic Church, where she and another housekeeper hid in a broom closet and witnessed two priests coming in late and conducting inappropriate behavior with young women in the kitchen.  
+Apparently Katarzyna arrived in the US six years before Ignacy. While living in Massachusetts, Katarzyna was a housekeeper at a Catholic Church, where she and another housekeeper hid in a broom closet and witnessed two priests coming in late and conducting inappropriate behavior with young women in the kitchen.  
 
 Ignacy and Katarzyna spent a short time farming in Alabama before settling in Detroit, Michigan. Ignacy worked for the Michigan Central Railroad, not the Père Marquette Railroad. Followed by Ford, then owned a Gulf Gas Station in Centerline, Michigan.  
 
