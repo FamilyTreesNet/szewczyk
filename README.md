@@ -8,7 +8,7 @@ Katarzyna and Ignacy received their marriage license from a courthouse in Northa
 
 Apparently Katarzyna arrived in the US six years before Ignacy. While living in Northampton, Massachusetts, Katarzyna was a housekeeper at a Catholic Church, where she and another housekeeper hid in a broom closet and witnessed two priests coming in late and conducting inappropriate behavior with young women in the kitchen.    
 
-Polish immigrants knew about the “Pioneer Valley” of Mass as one of the best farmlands in America.  
+Polish immigrants migrated to the “Pioneer Valley” of Mass as one of the best farmlands in America. Hamtramck Michigan, inside Detroit, also had a big Polish community.  
 
 Ignacy and Katarzyna spent a short time farming <!--in Alabama-->before settling in Detroit, Michigan. Ignacy worked for the Michigan Central Railroad, not the Père Marquette Railroad. He then worked at Ford before owning a Gulf gas station in Centerline, Michigan.  
 
