@@ -1,14 +1,22 @@
+
+Bieszczady Mountains
+
+
 # Katarzyna and Ignacy Szewczyk
 
 Pronounced: Chef Shick  
 
-Grandparents of Gwen, Vivian, Jonathan and Robert  
+Grandparents of Gwen, Vivian, [Jonathan](../macks) and Robert  
 
-Katarzyna and Ignacy received their marriage license from a courthouse in Northampton, Massachusetts <!--According to Rob, was previously Springfield-->.  Its possibile Ignacy and Katarzyna were married in Europe prior to 1909. (Note that Ignacy indicated he was married in his 1909 ship records.)  
+Katarzyna and Ignacy received their marriage license from a courthouse in Northampton, Massachusetts<!--According to Rob, was previously Springfield-->.  Its possibile Ignacy and Katarzyna were married in Europe prior to 1909. (Note that Ignacy indicated he was married in his 1909 ship records.)  
+
+Based on great-great grand daughter Abbey's DNA test, she has ancenters in 
+[Podkarpackie Voivodeship](https://www.google.com/maps/place/Podkarpackie+Voivodeship,+Poland/@50.64952,15.5016628,5.62z/data=!4m5!3m4!1s0x473c8befdba361b5:0x1017cadc5e4c0a0!8m2!3d50.0574749!4d22.0895691) and across the border in [Ternopil Oblast](https://www.google.com/maps/place/Ternopil+Oblast,+Ukraine/@43.3835873,3.242089,4z/data=!4m5!3m4!1s0x47304b5bd69ed265:0x101068488f64050!8m2!3d49.553517!4d25.594767)  
+
 
 Apparently Katarzyna arrived in the US six years before Ignacy. While living in Northampton, Massachusetts, Katarzyna was a housekeeper at a Catholic Church, where she and another housekeeper hid in a broom closet and witnessed two priests coming in late and conducting inappropriate behavior with young women in the kitchen.    
 
-Polish immigrants migrated to the “Pioneer Valley” of Mass as one of the best farmlands in America. Hamtramck Michigan, inside Detroit, also had a big Polish community.  
+Polish immigrants migrated to the “Pioneer Valley” of Massachusetts as one of the best farmlands in America. Hamtramck Michigan, inside Detroit, also had a big Polish community.  
 
 Ignacy and Katarzyna spent a short time farming <!--in Alabama-->before settling in Detroit, Michigan. Ignacy worked for the Michigan Central Railroad, not the Père Marquette Railroad. He then worked at Ford before owning a Gulf gas station in Centerline, Michigan.  
 
