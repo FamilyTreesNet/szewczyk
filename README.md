@@ -6,19 +6,16 @@ Bieszczady Mountains
 
 Pronounced: Chef Shick  
 
-Grandparents of Gwen, Vivian, [Jonathan](../macks) and Robert  
+Grandparents of Gwen, Vivian, Jonathan and Robert.  
 
-Katarzyna and Ignacy received their marriage license from a courthouse in Northampton, Massachusetts<!--According to Rob, was previously Springfield-->.  Its possibile Ignacy and Katarzyna were married in Europe prior to 1909. (Note that Ignacy indicated he was married in his 1909 ship records.)  
-
-Based on great-great grand daughter Abbey's DNA test, she has ancenters in 
-[Podkarpackie Voivodeship](https://www.google.com/maps/place/Podkarpackie+Voivodeship,+Poland/@50.64952,15.5016628,5.62z/data=!4m5!3m4!1s0x473c8befdba361b5:0x1017cadc5e4c0a0!8m2!3d50.0574749!4d22.0895691) and across the border in [Ternopil Oblast](https://www.google.com/maps/place/Ternopil+Oblast,+Ukraine/@43.3835873,3.242089,4z/data=!4m5!3m4!1s0x47304b5bd69ed265:0x101068488f64050!8m2!3d49.553517!4d25.594767)  
+Great-great grand daughter Abbey's DNA test confirmed that the couple were from communities along the Ukrainian-Polish boarder. Abbey's results showed that our ancestors were from [Podkarpackie Voivodeship](https://www.google.com/maps/place/Podkarpackie+Voivodeship,+Poland/@50.64952,15.5016628,5.62z/data=!4m5!3m4!1s0x473c8befdba361b5:0x1017cadc5e4c0a0!8m2!3d50.0574749!4d22.0895691) and across the border in [Ternopil Oblast](https://www.google.com/maps/place/Ternopil+Oblast,+Ukraine/@43.3835873,3.242089,4z/data=!4m5!3m4!1s0x47304b5bd69ed265:0x101068488f64050!8m2!3d49.553517!4d25.594767) by the Bieszczady Mountains (above). 
 
 
-Apparently Katarzyna arrived in the US six years before Ignacy. While living in Northampton, Massachusetts, Katarzyna was a housekeeper at a Catholic Church, where she and another housekeeper hid in a broom closet and witnessed two priests coming in late and conducting inappropriate behavior with young women in the kitchen.    
+Ignacy and Katarzyna spent a short time farming in Massachusetts before settling in Detroit, Michigan. Ignacy worked for the Michigan Central Railroad<!--, not the Père Marquette Railroad-->. He then worked at Ford before owning a Gulf gas station in Centerline, Michigan.  Polish immigrants migrated to the “Pioneer Valley” of Massachusetts as one of the best farmlands in America. Hamtramck Michigan in Detroit also had a large Polish community.
 
-Polish immigrants migrated to the “Pioneer Valley” of Massachusetts as one of the best farmlands in America. Hamtramck Michigan, inside Detroit, also had a big Polish community.  
+Katarzyna arrived in the US in 1903, six years before Ignacy. While living in Northampton, Massachusetts, Katarzyna was a housekeeper at a Catholic Church. When two priests arrived late with women, she and another housekeeper hid in a broom closet and witnessed inappropriate behavior in the kitchen. Katarzyna and Ignacy later became Later Day Saints, and subsequently didn't celebrate Christmas, though their son-in-law Eugene would later set up a tree each year with an electric train.  
 
-Ignacy and Katarzyna spent a short time farming <!--in Alabama-->before settling in Detroit, Michigan. Ignacy worked for the Michigan Central Railroad, not the Père Marquette Railroad. He then worked at Ford before owning a Gulf gas station in Centerline, Michigan.  
+Katarzyna and Ignacy received their marriage license from a courthouse in Northampton, Massachusetts<!--According to Rob, was previously Springfield-->.  Ignacy indicated he was married in his 1909 ship records, so he and Katarzyna may have been married in Europe prior to her departure for America in 1903 at the age of 17.  
 
 Records from the Ellis Island website:
 
@@ -60,7 +57,6 @@ from the Ukraine and twelve miles north of Slovakia.
 Katarzyna always mentioned Lancut which is about 1.5 miles northwest of Kanczuga. She may have been born there.
 
 Ignacy had a book about Lezajsk which is about 2.5 miles north of Kanczuga. He may have come from Lezajsk.
-
 
 Katarzyna passed away in 1974. Her funeral was during a tremendous snowstorm.  
 Ignacy passed away early September 1973, just weeks before his grandson's wedding Sept. 22, 1973. 
