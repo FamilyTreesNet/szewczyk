@@ -15,7 +15,7 @@ Ignacy and Katarzyna spent a short time farming in Massachusetts before settling
 
 Katarzyna and Ignacy received their marriage license from a courthouse in Northampton, Massachusetts<!--According to Rob, was previously Springfield-->.  Ignacy indicated he was married in his 1909 ship records, so he and Katarzyna may have been married in Europe prior to her departure for America in 1903 at the age of 17.  
 
-Katarzyna worked as a housekeeper at a Catholic Church Northampton, Massachusetts. When two priests arrived late with women, she and another housekeeper hid in a broom closet and witnessed inappropriate behavior in the kitchen. Katarzyna and Ignacy later became Latter Day Saints, and subsequently didn't celebrate Christmas, though their son-in-law Eugene would later set up a tree each year with an electric train.  
+Katarzyna worked as a housekeeper at a Catholic church in Northampton, Massachusetts. When two priests arrived late one evening with women, Katarzyna and another housekeeper hid in a broom closet and witnessed inappropriate behavior in the kitchen. Katarzyna and Ignacy later became Latter Day Saints, and subsequently didn't celebrate Christmas, though their son-in-law Eugene set up a tree each year (with an electric train) in the house they shared in Detroit.  
 
 Records from the Ellis Island website:
 
