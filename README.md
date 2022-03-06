@@ -61,4 +61,8 @@ Ignacy had a book about Lezajsk which is about 2.5 miles north of Kanczuga. He m
 Katarzyna passed away in 1974. Her funeral was during a tremendous snowstorm.  
 Ignacy passed away early September 1973, just weeks before his grandson's wedding Sept. 22, 1973. 
 
+<img src="img/katarzyna-and-virginia.jpg">
+Katarzyna and Ignacy lived with Virginia and Eugene in Detroit  
+
+
 [Edit on GitHub](https://github.com/FamilyTreesNet/szewczyk)
