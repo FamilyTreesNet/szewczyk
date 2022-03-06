@@ -56,7 +56,7 @@ from the Ukraine and twelve miles north of Slovakia.
 
 Katarzyna always mentioned Lancut which is about 1.5 miles northwest of Kanczuga. She may have been born there.
 
-Ignacy had a book about Lezajsk which is about 2.5 miles north of Kanczuga. He may have come from Lezajsk. We called him JahJoo Szewczyk (the Polish name for grandfather).
+Ignacy had a book about Lezajsk which is about 2.5 miles north of Kanczuga. He may have come from Lezajsk. We called him Jaju Szewczyk (the Polish name for grandfather, which we pronounced JahJew).
 
 Katarzyna passed away in 1974. Her funeral was during a tremendous snowstorm.  
 Ignacy passed away early September 1973, just weeks before his grandson's wedding Sept. 22, 1973. 
