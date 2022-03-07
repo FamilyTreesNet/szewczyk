@@ -62,7 +62,8 @@ Katarzyna passed away in 1974. Her funeral was during a tremendous snowstorm.
 Ignacy passed away early September 1973, just weeks before his grandson's wedding Sept. 22, 1973. 
 
 <img src="img/katarzyna-and-virginia.jpg">
-Katarzyna and her daughter Virginia at their Virginia Park Detroit home 1973 or 1974.
+
+Katarzyna and her daughter Virginia at their Detroit home on Virginia Park, 1973 or 1974.
 Katarzyna and Ignacy lived with their daughter Virginia and her husband Eugene [Macks](../macks) in a single level duplex.  
 
 
