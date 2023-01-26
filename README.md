@@ -64,7 +64,7 @@ Ignacy passed away early September 1973, just weeks before his grandson's weddin
 <img src="img/katarzyna-and-virginia.jpg">
 
 Katarzyna and her daughter Virginia at their Detroit home on Virginia Park, 1973 or 1974.
-Katarzyna and Ignacy lived with their daughter Virginia and her husband Eugene [Macks](../macks) in a single level duplex.  
+Katarzyna and Ignacy lived with their daughter Virginia and her husband Eugene [Macks](../macks) in a single-level duplex.  
 
 
 [Edit on GitHub](https://github.com/FamilyTreesNet/szewczyk)
